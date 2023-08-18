@@ -1,0 +1,2 @@
+# shantika
+membuat portofolio
